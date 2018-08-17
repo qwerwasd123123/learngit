@@ -1,1 +1,1 @@
-you are a good people
+you are a good men
